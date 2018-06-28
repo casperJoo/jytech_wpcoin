@@ -1,1 +1,0 @@
-# jytech_wpcoin
